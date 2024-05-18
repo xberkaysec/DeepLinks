@@ -39,4 +39,6 @@ Bu site de baya hassas içerikler var,
 İçerik +18 uygunsuz,
 - https://rule34video.com/
 
- 
+Dikkat çekici bulduğum forumlardan biri,
+- https://f95zone.to/
+
