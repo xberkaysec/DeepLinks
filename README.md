@@ -1,2 +1,8 @@
 # DeepLinks
-+18, sorumluluk gerektirmez.
+
+Normal görünüşlü sıradan insanların bu kadar çok şey toplayacağını hayal etmek zor (:
+Bu linkler hassas olanlar için uygun değildir ve yapacağınız her hangi faaliyetten sorumlu değilim.
+Tamamen merak edenler için bazı hazırladığım linklerden oluşuyor.
+Bu linkler'in ileri de belki de çoğu kapanacak.
+Zaman zaman güncelleme yapabilirim.
+
