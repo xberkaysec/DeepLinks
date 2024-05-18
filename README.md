@@ -5,7 +5,7 @@ Bu linkler hassas olanlar için uygun değildir ve yapacağınız her hangi faal
 Tamamen merak edenler için bazı hazırladığım linklerden oluşuyor.
 Bu linkler'in ileri de belki de çoğu kapanacak.
 Zaman zaman güncelleme yapabilirim.
-Clear Net vb karışık olacak.
+Linkler Clear Net'tir. Tor Browser vs gerektirmez.
 
 (! 18 yaş ve üzeri için uygundur :D)
 
