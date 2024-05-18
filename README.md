@@ -36,3 +36,7 @@ Beğendiğim hassas bir forumdur,
 Bu site de baya hassas içerikler var,
 - https://megabizarro.net/
 
+İçerik +18 uygunsuz,
+- https://rule34video.com/
+
+ 
