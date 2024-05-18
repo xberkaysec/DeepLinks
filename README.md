@@ -15,3 +15,15 @@ Diğer site'de adı gibi baya çılgın,
 Yine bir birinden ilginç içerikler olan hassas bir site,
 - https://deepgoretube.site/
 
+Değişik saçma sapan bir site daha,
+- https://alivegore.com
+
+Bir sürü videonun olduğu bir site(Çatışma vb.),
+- https://horriblevideos.com/
+
+Adından ne olduğu belli oluyor zaten,
+- https://watchpeopledie.tv/
+
+Beğendiğim hassas bir forumdur,
+- https://goregrish.com/
+
