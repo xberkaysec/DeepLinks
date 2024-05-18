@@ -6,6 +6,8 @@ Tamamen merak edenler için bazı hazırladığım linklerden oluşuyor.
 Bu linkler'in ileri de belki de çoğu kapanacak.
 Zaman zaman güncelleme yapabilirim.
 
+(! 18 yaş ve üzeri için uygundur :D)
+
 İlk site vahşet sevenler için,
 - https://xgore.net/
 
