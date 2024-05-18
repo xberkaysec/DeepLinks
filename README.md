@@ -27,3 +27,9 @@ Adından ne olduğu belli oluyor zaten,
 Beğendiğim hassas bir forumdur,
 - https://goregrish.com/
 
+İlginizi çekecek içerikler olabilir,
+- https://www.itemfix.com/
+
+Bu site de baya hassas içerikler var,
+- https://megabizarro.net/
+
